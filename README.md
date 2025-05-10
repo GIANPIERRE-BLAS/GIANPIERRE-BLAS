@@ -6,7 +6,7 @@
 
 💞️ I'm looking to collaborate on open-source projects, particularly in the e-commerce space.
 
-📫 How to reach me: You can email me at gianpierreblasflores235@gmail.com or connect with me on LinkedIn.
+📫 How to reach me: You can email me at gianpierreblasflores235@gmail.com or connect with me on LinkedIn https://www.linkedin.com/in/justo-gianpierre-blas-flores-5ba671302.
 
 😄 Pronouns: He/Him
 
